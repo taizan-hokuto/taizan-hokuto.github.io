@@ -1,1 +1,0 @@
-# taizan-hokuto.github.io
